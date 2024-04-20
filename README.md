@@ -1,3 +1,5 @@
+![If you work, it will work](https://github.com/Antoniya-A/Antoniya-A/blob/main/1676441643909.jpg?raw=true)<br>
+
 # Hi there 👋, I'm Antoniya
 
 ## 💫 About Me:
